@@ -1,3 +1,3 @@
 Hey Hi 
-How are you!!
+How do you do?
 
